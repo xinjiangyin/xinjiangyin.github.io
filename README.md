@@ -1,0 +1,1 @@
+# xinjiangyin.github.io
